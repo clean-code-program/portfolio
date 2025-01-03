@@ -1,6 +1,6 @@
 ### Portfolio
 
-The following 
+The following site showcases 
 
 
 ### Summary
